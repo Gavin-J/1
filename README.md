@@ -1,23 +1,24 @@
-# 小妲己最新下载地址（2020年12月16日更新）
+# 小妲己最新下载地址（2020年1月21日更新）
 
 ### 点击以下链接进入下载页：
-### [0ccj.xyz](http://0ccj.xyz)<br> 
-### [omhf.xyz](http://omhf.xyz)<br> 
-### 主播版下载地址 [70nt.xyz](http://70nt.xyz)
+### [w0ww.xyz](http://w0ww.xyz)<br> 
+### [yn6u.xyz](http://yn6u.xyz)<br> 
+### 主播版下载地址 [762b.xyz](http://762b.xyz )
 （观众下载无法使用）
 
 备用观众版下载地址如下<br>       
-dgdw.xyz<br>  
-pykk.xyz<br>  
-ek1i.xyz<br>  
-3vd2.xyz<br>  
-gmf1.xyz<br>  
-5ift.xyz<br>
+1x67.xyz<br>
+4i70.xyz<br>
+gb5b.xyz<br>
+mq44.xyz<br>
+5g07.xyz<br>
+e5lg.xyz<br>
 
 
 
 备用主播版下载地址如下<br>
-70nt.xyz<br> 
+crd5.xyz<br>
+e26z.xyz<br>
 
 
 # 小妲己回家页简介
